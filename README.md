@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Aliteymourinia
+- 👋 Hi, I’m Ali teymourinia
 - 👀 I’m interested in creating websites & applications
 - 📫 How to reach me : Mail me: aliteymourinia.dev@gmail.com / Call me: +98 937-154-9932
 - Hobbies : Music ,Book , Movie , Art , Nature Immersion.
